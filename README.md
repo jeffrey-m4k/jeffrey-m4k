@@ -1,4 +1,4 @@
-### Hi there, I'm Jeffrey 👋
+### Hi there, I'm Jay 👋
 Welcome to my personal GitHub!
 
 ----
